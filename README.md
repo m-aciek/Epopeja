@@ -26,4 +26,24 @@ Bez skrępowania winniśmy wraz
 
 Pisać cokolwiek, przerabiać tekst srodze.
 
+
+
+Taka jest prawda Panowie,
+
+Że rzadko puszczamy stery
+
+Bo ważne jest nasze zdrowie
+
+I nad wyraz cenimy maniery.
+
+
+
+Jednak dajmy spokój rozwadze,
+
+Stańmy się jak prawdziwi kamikadze.
+
+Bierzmy się za pisanie kodu
+
+Aż do poczucia pierwszego głodu.
+
 [1]: https://youtu.be/4uIdZWgOO0E
